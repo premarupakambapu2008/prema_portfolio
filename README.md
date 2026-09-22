@@ -13,7 +13,7 @@ I am a B.Sc. Mathematics student at S.V.L.N.S GOVERNMENT DEGREE COLLEGE AFFILIAT
 - Intermediate Marks List (https://github.com/premarupakambapu2008/prema_portfolio/blob/main/IMG-20260922-WA0002.jpg) 
 
 ## Certificates
-- Certificates and achievements will be added here.
+- Certificates and achievements will be added here.https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Kambapu%20Prema%20Rupa%202.pdf
 
 ## Skills
 - Mathematics
