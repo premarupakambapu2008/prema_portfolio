@@ -9,8 +9,8 @@ I am a B.Sc. Mathematics student at S.V.L.N.S GOVERNMENT DEGREE COLLEGE AFFILIAT
 - B.Sc. Mathematics —S.V.L.N.S GOVERNMENT DEGREE COLLEGE Affiliated by Andhra University
 
 ## Academic Records
-- 10th Marks List- [10th Marks List](https://github.com/premarupakambapu2008/prema_portfolio/blob/main/IMG-20260922-WA0001.jpg)
-- Intermediate Marks List
+- 10th Marks List (https://github.com/premarupakambapu2008/prema_portfolio/blob/main/IMG-20260922-WA0001.jpg)
+- Intermediate Marks List (https://github.com/premarupakambapu2008/prema_portfolio/blob/main/IMG-20260922-WA0002.jpg) 
 
 ## Certificates
 - Certificates and achievements will be added here.
