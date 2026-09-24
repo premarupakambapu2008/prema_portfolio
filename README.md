@@ -24,6 +24,8 @@ https://github.com/premarupakambapu2008/prema_portfolio/blob/main/2oGPWP%20(2)-c
 
 https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Kambapu%20Prema%20Rupa.pdf
 
+https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Prema%20rupa%20.pdf
+
 
 ## Skills
 - Mathematics
