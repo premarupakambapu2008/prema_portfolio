@@ -14,11 +14,15 @@ I am a B.Sc. Mathematics student at S.V.L.N.S GOVERNMENT DEGREE COLLEGE AFFILIAT
 
 
 ## Certificates
-- Certificates and achievements will be added here.https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Kambapu%20Prema%20Rupa%202.pdf
+- Certificates and achievements will be added
+
+https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Z2mmcNH%20(1)%20-%202026-09-23T200802.654-combined.pdf
+
+https://github.com/premarupakambapu2008/prema_portfolio/blob/main/18T53m%20(1)%20-%202026-09-23T200519.178-combined.pdf
+
+https://github.com/premarupakambapu2008/prema_portfolio/blob/main/2oGPWP%20(2)-combined.pdf
 
 https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Kambapu%20Prema%20Rupa.pdf
-
-https://github.com/premarupakambapu2008/prema_portfolio/blob/main/Kambapu%20Prema%20Rupa1.pdf
 
 
 ## Skills
